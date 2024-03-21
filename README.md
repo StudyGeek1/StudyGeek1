@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @StudyGeek1
-- 👀 I’m interested everything cyber.
+- 👀 I’m interested in everything cyber.
 - 🌱 I’m currently learning as much as I can.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
